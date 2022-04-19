@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gmyers92108
-- 👀 I’m interested in ...security 
-- 🌱 I’m currently learning ...android 
+- 👀 I’m interested in ... human sexualaty 
+- 🌱 I’m currently learning ...cunnilingus 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...6195003338
 
